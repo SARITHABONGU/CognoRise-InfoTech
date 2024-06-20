@@ -1,0 +1,2 @@
+# CognoRise-InfoTech
+GRAPHIC DESIGNING(UI/UX DESIGN)
